@@ -14,7 +14,7 @@ Prepara tu paladar para un viaje de sabores que te hará regresar una y otra vez
 
 ¡Esperamos atenderte pronto!
 
-#Integrantes del grupo
+# Integrantes del grupo
 
 Lorenzo Molina
 
