@@ -13,3 +13,11 @@ Así que, si estás listo para disfrutar de auténticas pastas italianas sin sal
 Prepara tu paladar para un viaje de sabores que te hará regresar una y otra vez. 
 
 ¡Esperamos atenderte pronto!
+
+#Integrantes del grupo
+
+Lorenzo Molina 
+Roman Miotto
+Santiago Marquez
+Rodrigo Alvarado
+Franco Bazan
