@@ -1,5 +1,4 @@
 # El Buen Sabor
-¡Bienvenidos a "El Buen Sabor"!
 En "El Buen Sabor", te ofrecemos la auténtica experiencia de la comida italiana en la comodidad de tu hogar. 
 Sabemos que tu tiempo es valioso y que a veces deseas disfrutar de los sabores tradicionales sin tener que salir. Por eso, creamos un servicio de entrega de pastas frescas y deliciosas directamente a tu puerta.
 Si sos parte de un público tanto joven como adulto que busca calidad y autenticidad sin moverse de casa, te invitamos a descubrir nuestro menú cuidadosamente diseñado. Desde clásicas pastas con salsas que despiertan tus 
