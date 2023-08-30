@@ -16,8 +16,12 @@ Prepara tu paladar para un viaje de sabores que te hará regresar una y otra vez
 
 #Integrantes del grupo
 
-Lorenzo Molina 
+Lorenzo Molina
+
 Roman Miotto
+
 Santiago Marquez
+
 Rodrigo Alvarado
+
 Franco Bazan
